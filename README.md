@@ -1,5 +1,3 @@
-# 👋 Hi, I’m **Rankela Venkata Arjun** 🧑‍💻
-
 
 
 
